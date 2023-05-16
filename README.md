@@ -22,7 +22,11 @@
 
 ![Снимок экрана от 2023-05-16 11-59-29](https://github.com/otus-avi/dz8/assets/123792073/36d9d276-5e39-4483-9d9b-5602eb891600)
 
+![Снимок экрана от 2023-05-16 12-01-39](https://github.com/otus-avi/dz8/assets/123792073/a74d7968-babe-461c-bb5c-4c2dc1046078)
 
+![Снимок экрана от 2023-05-16 12-04-01](https://github.com/otus-avi/dz8/assets/123792073/1d3f4e5e-1253-4843-a3f4-2feee1b0cd4c)
+
+![Снимок экрана от 2023-05-16 12-07-00](https://github.com/otus-avi/dz8/assets/123792073/b09521bb-79c1-4a4b-889a-ed09fd1e74c6)
 
 
 
